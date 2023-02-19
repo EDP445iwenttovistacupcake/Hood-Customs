@@ -8,7 +8,7 @@
     
     
     The List of payments for Unbans.
-    Cash App << $25
+    Cash App << $25 -- Cash Tag --// $HoodReligions
     Paypal : currently down. <<
     Limiteds. << 15k+ 
     Adurite Giftcard << $25
