@@ -13,11 +13,14 @@
     Limiteds. << 15k+ 
     Adurite Giftcard << $25
     
-    
-    before any unban is processed u must wait for ur data wipe this included stats wipe, inventory wipe, litterally just everything
-    if you want ur guns in ur inventory to be transferd that will cost u an extra $15
+    **Disclaimer it is unknown when ur data will be wiped how this works is that i sent ur id to raycodex, the owner and wait for him to wipe u in roblox studio he does this on any time he wants so u could possibly be instantly unbanned depending on how good / bad ur stats are** 
 
-    **Only Contact me if u have ur payment ready for an unban do not come in my dms saying "oh its 25 ok i got u next week."** << https://nohello.net >>
+    before any unban is processed u must wait for ur data wipe this included stats wipe, inventory wipe, litterally just everything
+    if you want ur gun skins in ur inventory to be transferd that will cost u an extra $15 << How Does this work!? >> - u will be unbanned for a temporary time limit
+    to trade ur gun skins to an alternative account to hold ur skins till ur unbanned and u can just trade them back to ur main u will be banned again when done
+    transfering 
+
+    ** Only Contact me if u have ur payment ready for an unban do not come in my dms saying "oh its 25 ok i got u next week." ** << https://nohello.net >>
     
     My Discord tag is listed Above
     
